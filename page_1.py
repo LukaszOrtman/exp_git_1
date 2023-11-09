@@ -21,4 +21,7 @@ i znaleziono ich w pobliskim barze. Byli to: Filip Rózga (Cracovia), Oskar Tomc
 (obaj Lech Poznań) oraz Jan Łabędzki (ŁKS Łódź). Decyzją PZPN wszyscy zostali odsunięci od drużyny
 narodowej.
 
-- Filip Rózga został przesunięty do zespołu juniorów, będzie też pracował jako wolontariusz z dziećmi w Szpitalu Uniwersyteckim. Popełnił błąd, ale nie zamierzamy go skreślać. Teraz wszystko zależy od niego - powiedział Jacek Zieliński. Jego wypowiedź zacytował Grzegorz Wojtowicz, dziennikarz Polskiej Agencji Prasowej na swoim profilu na Twitterze.
+- Filip Rózga został przesunięty do zespołu juniorów, będzie też pracował jako wolontariusz z dziećmi
+w Szpitalu Uniwersyteckim. Popełnił błąd, ale nie zamierzamy go skreślać. Teraz wszystko zależy od niego
+- powiedział Jacek Zieliński. Jego wypowiedź zacytował Grzegorz Wojtowicz, dziennikarz Polskiej Agencji
+Prasowej na swoim profilu na Twitterze.
