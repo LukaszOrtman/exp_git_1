@@ -22,3 +22,13 @@ narodowej.
 w Szpitalu Uniwersyteckim. Popełnił błąd, ale nie zamierzamy go skreślać. Teraz wszystko zależy od niego
 - powiedział Jacek Zieliński. Jego wypowiedź zacytował Grzegorz Wojtowicz, dziennikarz Polskiej Agencji
 Prasowej na swoim profilu na Twitterze.
+
+Trzy dni temu Cracovia wydała oświadczenie na temat zachowania swojego młodego piłkarza.
+- Nasz Klub w pełni popiera decyzję sztabu reprezentacji Polski do lat 18, a także Polskiego Związku
+Piłki Nożnej. Zachowanie, za jakie zawodnicy zostali odsunięci z kadry, jest niegodne piłkarzy
+reprezentujących Polskę na dużym międzynarodowym turnieju, jakim są Mistrzostwa Świata do lat 17. Było
+to też zdarzenie, które mocno narusza zasady, jakimi kierować powinien się jakikolwiek piłkarz.
+Profesjonalizmu i właściwego podejścia do sportu uczymy w naszej Akademii od najmłodszych lat i zdarzenie,
+którego uczestnikiem był także piłkarz Pasów, jest takim, które wymaga potępienia. Po powrocie Filipa
+Rózgi do Polski zapowiadamy wyciągnięcie surowych konsekwencji - czytamy na oficjalnej stronie klubowej
+Cracovii.
