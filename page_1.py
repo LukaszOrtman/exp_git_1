@@ -35,6 +35,3 @@ Cracovii.
 
 To nie pierwszy raz, gdy piłkarze kadry U-17 zostali przyłapani na piciu alkoholu. Podobna sytuacja miała
 miejsce we wrześniu ubiegłego roku podczas Pucharu Syrenki. Wtedy z zespołu zostali usunięci Mikołaj
-    Tudruj i Michał Matys - pisał Sport.pl.
-W ostatnim czasie reprezentacja Polski U-17 radziła sobie bardzo dobrze. Na tegorocznych mistrzostwach
-Europy awansowała do półfinału turnieju, w którym przegrała po pasjonującym starciu 3:5 z Niemcami.
