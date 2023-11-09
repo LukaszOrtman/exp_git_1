@@ -33,5 +33,4 @@ którego uczestnikiem był także piłkarz Pasów, jest takim, które wymaga pot
 Rózgi do Polski zapowiadamy wyciągnięcie surowych konsekwencji - czytamy na oficjalnej stronie klubowej
 Cracovii.
 
-To nie pierwszy raz, gdy piłkarze kadry U-17 zostali przyłapani na piciu alkoholu. Podobna sytuacja miała
-miejsce we wrześniu ubiegłego roku podczas Pucharu Syrenki. Wtedy z zespołu zostali usunięci Mikołaj
+
