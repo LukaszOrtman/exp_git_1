@@ -1,8 +1,5 @@
 
-Jeśli jeszcze nie masz planów na ostatnią noc roku,
-skorzystaj z przygotowanego zestawienia biletów i przywitaj
-2024 za granicą. Tym razem będziesz miał okazję odwiedzić m.in.
-Węgry, Austrię, Niemcy, Włochy czy Słowację.
+
 
 Poniżej znajdziesz wybrane przeze mnie najciekawsze kierunki oferowane
 przez PLL LOT z warszawskiego lotniska im. Fryderyka Chopina, w gorącym
