@@ -28,13 +28,13 @@ Trzy dni temu Cracovia wydała oświadczenie na temat zachowania swojego młodeg
 Piłki Nożnej. Zachowanie, za jakie zawodnicy zostali odsunięci z kadry, jest niegodne piłkarzy
 reprezentujących Polskę na dużym międzynarodowym turnieju, jakim są Mistrzostwa Świata do lat 17. Było
 to też zdarzenie, które mocno narusza zasady, jakimi kierować powinien się jakikolwiek piłkarz.
-Profesjonalizmu i właściwego podejścia do sportu uczymy w naszej Akademii od najmłodszych lat i zdarzenie,
+    Profesjonalizmu i właściwego podejścia do sportu uczymy w naszej Akademii od najmłodszych lat i zdarzenie,
 którego uczestnikiem był także piłkarz Pasów, jest takim, które wymaga potępienia. Po powrocie Filipa
 Rózgi do Polski zapowiadamy wyciągnięcie surowych konsekwencji - czytamy na oficjalnej stronie klubowej
 Cracovii.
 
 To nie pierwszy raz, gdy piłkarze kadry U-17 zostali przyłapani na piciu alkoholu. Podobna sytuacja miała
 miejsce we wrześniu ubiegłego roku podczas Pucharu Syrenki. Wtedy z zespołu zostali usunięci Mikołaj
-Tudruj i Michał Matys - pisał Sport.pl.
+    Tudruj i Michał Matys - pisał Sport.pl.
 W ostatnim czasie reprezentacja Polski U-17 radziła sobie bardzo dobrze. Na tegorocznych mistrzostwach
 Europy awansowała do półfinału turnieju, w którym przegrała po pasjonującym starciu 3:5 z Niemcami.
